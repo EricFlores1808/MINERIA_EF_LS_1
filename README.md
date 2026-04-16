@@ -1,0 +1,1 @@
+# MINERIA_EF_LS_1
